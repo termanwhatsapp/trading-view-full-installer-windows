@@ -1,0 +1,1 @@
+# trading-view-full-installer-windows
